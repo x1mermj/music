@@ -50,10 +50,9 @@ Love the music? Here's how you can support:
 
 ## 📱 Connect With Me
 
-- 🐦 [Twitter](#)
-- 📷 [Instagram](#)
-- 🎬 [TikTok](#)
-- 💌 [Email](#)
+- 📷 [Instagram](#)@ximermj
+- 🎬 [TikTok](#)@ximermj
+- 💌 [Email](#)@jmr7100@icloud.com
 
 ---
 
