@@ -8,19 +8,14 @@ Welcome to my music repository! Here you'll find information about my latest rel
 
 Just dropped my latest single "Headlock"! This track is fresh, energetic, and ready to take over your playlists.
 
-### Stream Now:
-- 🎧 [Spotify](#) 
-- 🎶 [Apple Music](#)
-- 📻 [SoundCloud](#)
-- 🎼 [YouTube Music](#)
 
 ---
 
 ## About Me
-
-I'm XIMERMJ, creating music that resonates. Whether it's catchy hooks, incredible beats, or meaningful lyrics, every track is crafted with passion.
+XIMERMJ (born John Richner on March 15, 1996) is an independent experimental electronic music artist, producer, and DJ from Buffalo, New York. He is known for creating high-octane digital soundscapes that blend chaotic Assemblies of sound, dark pop, and heavy electronica. Entirely self-managed, he releases his music through his own independent imprint, Richner Records.
 
 ## 📊 Streaming Stats
+As an independent, underground electronic producer, XIMERMJ operates with a niche, dedicated digital audience and has accumulated roughly 344,000 to 415,000 lifetime streams across core platforms, experiencing highly volatile spikes in monthly activity whenever new projects drop. A complete breakdown of XIMERMJ's core streaming metrics and playlist insights shows the following:Main Audience MetricsSpotify Monthly Listeners: Stables around 993 to 1,100 active monthly listeners.Growth Spikes: The artist frequently hits rapid spikes from editorial or independent curation. For instance, analytics from Chartmetric tracked a 2,868% listener surge on April 20, 2026, following the release of his second EP.
 
 Track your favorite songs here and watch them grow!
 
@@ -48,11 +43,7 @@ Love the music? Here's how you can support:
 
 ---
 
-## 📱 Connect With Me
 
-- 📷 [Instagram](#)@ximermj
-- 🎬 [TikTok](#)@ximermj
-- 💌 [Email](#)@jmr7100@icloud.com
 
 ---
 
