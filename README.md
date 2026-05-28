@@ -4,9 +4,9 @@ Welcome to my music repository! Here you'll find information about my latest rel
 
 ## 🚀 New Single - Out Now!
 
-**🎉 New Release - Tonight at Midnight!**
+**🎉 HEADLOCK by XIMERMJ - Out at Midnight!**
 
-Just dropped my latest single! This track is fresh, energetic, and ready to take over your playlists.
+Just dropped my latest single "Headlock"! This track is fresh, energetic, and ready to take over your playlists.
 
 ### Stream Now:
 - 🎧 [Spotify](#) 
@@ -18,7 +18,7 @@ Just dropped my latest single! This track is fresh, energetic, and ready to take
 
 ## About Me
 
-I create music that resonates. Whether it's catchy hooks, incredible beats, or meaningful lyrics, every track is crafted with passion.
+I'm XIMERMJ, creating music that resonates. Whether it's catchy hooks, incredible beats, or meaningful lyrics, every track is crafted with passion.
 
 ## 📊 Streaming Stats
 
@@ -58,3 +58,4 @@ Love the music? Here's how you can support:
 ---
 
 *Last Updated: May 28, 2026*
+*Current Single: HEADLOCK*
